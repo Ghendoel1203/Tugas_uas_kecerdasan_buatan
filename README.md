@@ -1,0 +1,2 @@
+# Tugas_uas_kecerdasan_buatan
+Muhamad Afriansyah_201011400861_06 TPLP 006
